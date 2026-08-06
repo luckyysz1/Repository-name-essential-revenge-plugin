@@ -1,1 +1,0 @@
-# Repository-name-essential-revenge-plugin
